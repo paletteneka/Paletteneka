@@ -27,3 +27,7 @@ $${\color{#e499ff}\text{like a yaoi cheese}}$$
 [ ata](https://paletteneka.atabook.org/).      [ sp](https://pawsweekendd.straw.page/).     [ shared rentry](https://rentry.co/our-stage).      [main rentry](https://rentry.co/cheesecakedotcakey)‎
 
 </div>
+
+[shout-out](https://rentry.co/ege-shoutout) to [ege](https://github.com/ban4na-om3lette)
+
+dni HIM 🙂🙂....
